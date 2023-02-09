@@ -1,4 +1,4 @@
-### Hi there :wave:
+# Hi there :wave: Welcome to my Profile
 
 My name is Steve and I'm a software engineer focused on front-end development.
 
