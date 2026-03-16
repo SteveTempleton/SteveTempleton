@@ -1,6 +1,6 @@
 # Hi there :wave: Welcome to my Profile
 
-My name is Steve and I'm a software engineer focused on front-end development.
+My name is Steve and currently I'm working as a software engineer but I'd love to make a career change. I want to help others with complex IT problems but still have the energy to code my own personal project after normal business hours. 
 
 I've used LAMP stack, Angular, and other frameworks to create user interfaces primarily for University students, faculty, and staff.
 
