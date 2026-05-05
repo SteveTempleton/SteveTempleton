@@ -13,4 +13,4 @@ You can also find me on my personal website :link: [stevetempleton.space](https:
 - :airplane: Traveling to far off places to sightsee and experience new forms of nature. Check out my :camera: [instagram](https://www.instagram.com/galactictemple/)
 - :mailbox: How to reach me: <steve.w.templeton@gmail.com>
 
-- Cool things: :dog:, :wolf:, :raccoon:, :goat: :vampire:, :t_rex:, :shark:, :squirrel:, :dragon:, :ant:, :microbe:, :mushroom:, :evergreen_tree:, :deciduous_tree:, :hibiscus:, :milky_way:, :book:, :dna:, :telescope:, :test_tube:, :satellite:
+- Cool things: :dog:, :wolf:, :raccoon:, :goat: :vampire:, :shark:, :dragon:, :ant:, :microbe:, :mushroom:, :evergreen_tree:, :deciduous_tree:, :hibiscus:, :milky_way:, :book:, :dna:, :telescope:, :test_tube:, :satellite:
